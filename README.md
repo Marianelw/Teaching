@@ -1,2 +1,2 @@
-# Teaching
+# Linguistics
 Teaching ideas
